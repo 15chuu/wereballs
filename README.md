@@ -1,5 +1,4 @@
-## before you be friend me, please know that i joke alot about insnesitive topics and sexual topics so please let me know if it makes you uncomfy
-ㅤㅤㅤ
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
