@@ -10,6 +10,26 @@
 
 
 
+
+
+
+
+
+**semi-verbal , no tonetags , ppd ok... i have NO filter at all and im always mean and makes insnesitive and um.. the sexual jokes so please tell me if your uncomfortable with it.**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ${\color{red}i \space LOVE \space my \space husband \space alic \space ♡}$
 ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ 
 
