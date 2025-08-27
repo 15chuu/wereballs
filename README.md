@@ -15,7 +15,7 @@
 
 
 
-**semi-verbal , no tonetags , ppd ok... i have NO filter at all and im always mean and makes insnesitive and um.. the sexual jokes so please tell me if your uncomfortable with it.**
+**semi-verbal , no tonetags , ppd ok... i have NO filter at all and im always mean and makes insnesitive jokes and um.. sexual jokes so please tell me if your uncomfortable with it.**
 
 
 
